@@ -1,3 +1,3 @@
 <p align="center">
-  <img src="https://cdn.soda.bot/yEnE6o4RMz59flP.png">
+  <img src="https://cdn.soda.bot/RjaPfKWp9DGkuEALp5.png">
 </p>
